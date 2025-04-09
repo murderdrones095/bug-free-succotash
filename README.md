@@ -1,4 +1,4 @@
-![Washiez Roasts](https://img.shields.io/badge/Roasts-250+-red)
+![Washiez Roasts](https://img.shields.io/badge/Washiez%20Roasts-250+-red)
 # Roasts To Troll
 **Want to troll and go absolutely mad? No worries!**
 
