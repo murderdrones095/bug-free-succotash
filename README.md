@@ -4,4 +4,8 @@
 
 👉 Get started [here!](https://github.com/murderdrones095/bug-free-succotash/tree/main/roasts)
 
-## This repository is updated hourly, daily, weekly, or monthly with new roasts 🚀💥
+## Most SAVAGE Roasts - Washiez
+`You schedule trainings like your Roblox resume gonna get you hired at Google.`
+`I came for a car wash, not a crash course in patience. You’ve got traffic jams that even the LA freeway can’t compete with.`
+
+### This repository is updated hourly, daily, weekly, or monthly with new roasts 🚀💥
